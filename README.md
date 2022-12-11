@@ -1,1 +1,1 @@
-https://Gul-nara.github.io/rsschool-cv/cv
+https://Gul-nara.github.io/rsschool-cv/
